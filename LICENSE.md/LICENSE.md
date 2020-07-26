@@ -1,3 +1,6 @@
+
+Privacy Policy :- 
+
 Respect for your privacy is coded marjor important for us. Since we started LifeHeart app, we’ve aspired to build our Services with a set of strong privacy principles in mind.
 
 To fulfill our commitment to respecting and protecting your privacy, we will adhere to the following principles:
